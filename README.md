@@ -1,1 +1,0 @@
-# CNTT3_Promting-AI_Session02_Ex07
